@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Cedric Carter (@ceddto100)
+# 👋 Hi, I'm Cedrick Carter (CodeByCed)
 
 ## 🚀 About Me
 
